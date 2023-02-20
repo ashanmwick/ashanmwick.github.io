@@ -1,1 +1,0 @@
-# ashanmwick.github.io
